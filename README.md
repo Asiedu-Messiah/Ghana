@@ -1,0 +1,2 @@
+# Ghana
+History about GHANA
